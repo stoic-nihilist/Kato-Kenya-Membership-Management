@@ -1,1 +1,0 @@
-# Kato-Kenya-Membership-Management
